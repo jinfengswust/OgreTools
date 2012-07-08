@@ -1,0 +1,1 @@
+I want more people join this project and have fun with Ogre!
